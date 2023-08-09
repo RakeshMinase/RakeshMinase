@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨‍🎓 I’m a Computer Engineer Undergraduate.<br>💻 I’m working as Software Engineer Intern at AFour Technologies.<br>📫 How to reach me: rakeshminase@gmail.com<br>😄 Pronouns: He/Him<br>⚡ Fun fact: I’m a big RCB fan
+👨‍🎓 I’m a Computer Engineer Undergraduate.<br>💻 I’m working as Software Engineer Intern at AFour Technologies.<br>📫 How to reach me: rakeshminase@gmail.com<br>😄 Pronouns: He/Him<br>⚡ Fun fact: I’m a professional gully cricketer
 
 
 ## 🌐 Socials:
